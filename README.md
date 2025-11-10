@@ -1,2 +1,3 @@
 # Roblox-Steal-a-brain-rot-script
-🚀 ULTIMATE BRAIN ROT DOMINATOR SCRIPT - PREMIUM EDITION  
+🚀BRAIN ROT DOMINATOR SCRIPT - PAID  
+https://discord.gg/t8B74xxYUv
